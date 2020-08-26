@@ -8,7 +8,7 @@ I'm a PM, literally it kind of product manager, and project manager. But I won't
 
 ### And...Me?
 - 🥛 I drink a bottle of milk tea every day without ice and sugar, but pearls.
-- 🤯 I think a got a little bit of ' generalized anxiety disorder '. I'm sorry about that sometimes I look like depression😵, just leave me alone. I can address it by myself.
+- 🤯 I think I got a little bit of ' generalized anxiety disorder '. I'm sorry about that sometimes I look like depression😵, just leave me alone. I can address it by myself.
 - 🗺 I won't stay at home during my weekend, I love to explore cafe & restaurant ...  Find a cozy spot in a city make me relax.🤟
 - 🤡 Sometimes I will get messy on my speaking🙇‍, believe me, I will train harder to organize my communication. 
 - 📸 I love to record my life and share my opinion of the world. But I seldom shoot video recently due to didn't have time ...
