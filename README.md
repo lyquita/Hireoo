@@ -4,7 +4,7 @@
 
 I love to try things that look interesting or never try before. It makes me excited and motivated. 
 
-I'm a PM, literally kind of a product manager and a project manager. But I won't care about the title, I know I just a  'designer' that solves a problem through design. It makes me excited when I know what I do can help other people.
+I'm a PM, literally kind of a product manager and a project manager. But I won't care about the title, I know I just a  'designer' that solves a problem through design. It makes me excited when I know what I do can help to other people.
 
 My goal is to be a renaissance girl, I know it's hard and there is a long way along with. 
 - "Be patient, step by step. You can be a slow walker, but you can't walk back. "
