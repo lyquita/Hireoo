@@ -13,3 +13,8 @@ I love to try things that look interesting or never try before. It makes me exci
 - 📝 Although I get used to writing stuff in a big moment, it quite depends on my mood. 
 - 💃🏾 I have been studying Hip Hop for around three months. As a freshman, and apparently have no talent of dancing, but I still enjoy shaking my body ~ just keep moving ~~
 - 🥯 Seriously, I think I'm a bagel lover🥯, I have tasted most of the bagel in shanghai. Mexico food is quite fit for my taste, especially burrito🌯 and taco🌮 ~~~ 
+
+### What am I learning currently?
+I'm trying to learn about programming, because *I wanna build my ideas and make it happen.*
+I  will put my attention to the front-end at first :)
+
