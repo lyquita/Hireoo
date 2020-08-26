@@ -4,7 +4,7 @@
 
 I love to try things that look interesting or never try before. It makes me excited and motivated. 
 
-I'm a PM, literally it kind of product manager, and project manager. But I won't care about the title, I know I just a  'designer' that solves a problem through design. It makes me excited when I know what I do can help other people.
+I'm a PM, literally kind of product manager, and project manager. But I won't care about the title, I know I just a  'designer' that solves a problem through design. It makes me excited when I know what I do can help other people.
 
 ### And...Me?
 - 🥛 I drink a bottle of milk tea every day without ice and sugar, but pearls.
