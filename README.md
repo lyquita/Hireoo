@@ -5,7 +5,7 @@
 I love to try things that look interesting or never try before. It makes me excited and motivated. 
 
 ### What's my type?
-- 🥛 I drink milk tea every day without ice and sugar, but pearls.
+- 🥛 I drink a bottle of milk tea every day without ice and sugar, but pearls.
 - 🤯 I think a got a little bit of ' generalized anxiety disorder '. I sorry that sometimes I look like depression, just leave me alone. I can address it by myself.
 - 🗺 I won't stay at home during my weekend, I love to explore a fresh cafe & restaurant ...  Find a cozy spot in a city make me relax.
 
