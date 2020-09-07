@@ -2,7 +2,7 @@
 #### I have no idea what to say here, but I will let you know once I get it :)
 ![I have no idea what to say here, but I will let you know once I get it :)](https://user-images.githubusercontent.com/39761827/90970788-a1497b00-e53b-11ea-9b36-8c5e8984a7f4.png)
 
-I love to try things that look interesting or I never try it before. It makes me excited and motivated. 
+I love to exploring things that look interesting or I never try it before. It makes me excited and motivated. 
 
 I'm a PM, literally kind of a product manager and a project manager. But I won't care about the title, I know I just a  'designer' that solves a problem through design. It makes me excited when I know what I do can help to other people.
 
