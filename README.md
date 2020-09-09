@@ -19,6 +19,7 @@ My goal is to be a renaissance girl, I know it's hard and there is a long way al
 - 📝 Although I get used to writing stuff in a big moment, it quite depends on my mood. 
 - 💃🏾 I have been studying Hip Hop for around three months. As a freshman, and apparently have no talent of dancing, but I still enjoy shaking my body ~ just keep moving ~~
 - 🥯 Seriously, I think I'm a bagel lover🥯, I have tasted most of the bagel in shanghai. Mexico food is quite fit for my taste, especially burrito🌯 and taco🌮 ~~~ 
+- 👀 Do nothing, or do everything I can.  Before I real think throughout it, I won't take my first step.
 
 ### What am I learning currently?
 I'm trying to learn about programming, because *I wanna build my ideas and make it happen.*
